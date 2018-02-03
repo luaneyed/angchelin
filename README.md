@@ -2,6 +2,12 @@
 익숙함에 속아 맛있음을 잊지 말자
 <br><br>
 
+경천애인2237 [ 4.5 ⭐️ ]
+<br>
+위치 : 선릉역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=TIAjPermLmuO)]
+<br><br>
+
 청어람 [ 4.0 ⭐️ ]
 <br>
 위치 : 망원역
