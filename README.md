@@ -37,9 +37,3 @@
 위치 : 연신내역
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=dwvS1BAUzBBY)]
 <br><br>
-
-알로이 타이 [ 1.5 ⭐️ ]
-<br>
-위치 : 선릉역
-[[다이닝코드](https://www.diningcode.com/profile.php?rid=KIZ7c7huE6Y2)]
-<br><br>
