@@ -37,3 +37,9 @@
 위치 : 연신내역
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=dwvS1BAUzBBY)]
 <br><br>
+
+고갯마루 [ 2.0 ⭐️ ]
+<br>
+위치 : 역삼역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=OeZF8URn5ZOF)]
+<br><br>
