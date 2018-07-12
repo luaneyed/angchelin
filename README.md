@@ -32,6 +32,12 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=9eoZ8bywDKjJ)]
 <br><br>
 
+진미평양냉면 [ 2.3 ⭐️ ]
+<br>
+위치 : 강남구청역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=VT9sxn0135MR)]
+<br><br>
+
 보들이 족발 [ 2.0 ⭐️ ]
 <br>
 위치 : 연신내역
