@@ -1,6 +1,6 @@
 # Angchelin
-익숙함에 속아 맛있음을 잊지 말자
-<br><br>
+### 익숙함에 속아 맛있음을 잊지 말자 ###
+<br>
 
 경천애인2237 [ 4.5 ⭐️ ]
 <br>
@@ -38,14 +38,12 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=VT9sxn0135MR)]
 <br><br>
 
-보들이 족발 [ 2.0 ⭐️ ]
+### 배고픔에 속아 맛없음을 잊지 말자 ###
 <br>
-위치 : 연신내역
-[[다이닝코드](https://www.diningcode.com/profile.php?rid=dwvS1BAUzBBY)]
-<br><br>
+<br>
 
-고갯마루 [ 2.0 ⭐️ ]
+텍사스 데 브라질 [ 5.0 ☠️ ]
 <br>
-위치 : 역삼역
-[[다이닝코드](https://www.diningcode.com/profile.php?rid=OeZF8URn5ZOF)]
+위치 : 고속터미널역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=3ocUzENcgoKn)]
 <br><br>
