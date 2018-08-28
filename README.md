@@ -42,6 +42,12 @@
 <br>
 <br>
 
+차이나플레인 [ 4.0 ☠️ ]
+<br>
+위치 : 선릉역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=M3rKkWrHmzET)]
+<br><br>
+
 텍사스 데 브라질 [ 5.0 ☠️ ]
 <br>
 위치 : 고속터미널역
