@@ -14,6 +14,12 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=hI8HuREl1vU7)]
 <br><br>
 
+정식당 [ 3.5 ⭐️ ]
+<br>
+위치 : 압구정로데오역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=TFmNhx1RJTs6)]
+<br><br>
+
 선초밥 [ 3.2 ⭐️ ]
 <br>
 위치 : 선정릉역
