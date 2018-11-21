@@ -38,6 +38,12 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=UwzXQhpEhe9I)]
 <br><br>
 
+사까나야바로바로 [ 2.0 ⭐️ ]
+<br>
+위치 : 선릉역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=o3T0vmoG3GYB)]
+<br><br>
+
 진미평양냉면 [ 1.3 ⭐️ ]
 <br>
 위치 : 강남구청역
