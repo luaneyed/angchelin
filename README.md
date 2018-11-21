@@ -38,7 +38,7 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=UwzXQhpEhe9I)]
 <br><br>
 
-진미평양냉면 [ 2.3 ⭐️ ]
+진미평양냉면 [ 1.3 ⭐️ ]
 <br>
 위치 : 강남구청역
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=VT9sxn0135MR)]
