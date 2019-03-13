@@ -38,6 +38,12 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=UwzXQhpEhe9I)]
 <br><br>
 
+카토멘 [ 2.3 ⭐️ ]
+<br>
+위치 : 선릉역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=uPnAkbrxOqGP)]
+<br><br>
+
 사까나야바로바로 [ 2.0 ⭐️ ]
 <br>
 위치 : 선릉역
