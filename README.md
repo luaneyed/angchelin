@@ -61,6 +61,12 @@
 위치 : 선릉역
 <br><br>
 
+제이에스테이블 [ 1.3 ⭐️ ]
+<br>
+위치 : 선릉역
+[[망고플레이트](https://www.mangoplate.com/restaurants/_Jx3ZRSj89PD)]
+<br><br>
+
 ### 배고픔에 속아 맛없음을 잊지 말자 ###
 <br>
 <br>
