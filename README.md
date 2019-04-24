@@ -38,16 +38,16 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=UwzXQhpEhe9I)]
 <br><br>
 
-카토멘 [ 2.3 ⭐️ ]
-<br>
-위치 : 선릉역
-[[다이닝코드](https://www.diningcode.com/profile.php?rid=uPnAkbrxOqGP)]
-<br><br>
-
 사까나야바로바로 [ 2.0 ⭐️ ]
 <br>
 위치 : 선릉역
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=o3T0vmoG3GYB)]
+<br><br>
+
+카토멘 [ 1.5 ⭐️ ]
+<br>
+위치 : 선릉역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=uPnAkbrxOqGP)]
 <br><br>
 
 진미평양냉면 [ 1.3 ⭐️ ]
@@ -56,15 +56,15 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=VT9sxn0135MR)]
 <br><br>
 
-전가네 손칼국수 [ 1.0 ⭐️ ]
-<br>
-위치 : 선릉역
-<br><br>
-
 제이에스테이블 [ 1.3 ⭐️ ]
 <br>
 위치 : 선릉역
 [[망고플레이트](https://www.mangoplate.com/restaurants/_Jx3ZRSj89PD)]
+<br><br>
+
+전가네 손칼국수 [ 1.0 ⭐️ ]
+<br>
+위치 : 선릉역
 <br><br>
 
 ### 배고픔에 속아 맛없음을 잊지 말자 ###
