@@ -20,6 +20,12 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=TFmNhx1RJTs6)]
 <br><br>
 
+중앙해장 [ 3.5 ⭐️ ]
+<br>
+위치 : 삼성역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=PYk33Cv6jpwY)]
+<br><br>
+
 선초밥 [ 3.2 ⭐️ ]
 <br>
 위치 : 선정릉역
