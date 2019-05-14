@@ -38,6 +38,12 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=9eoZ8bywDKjJ)]
 <br><br>
 
+야상해 [ 3.0 ⭐️ ]
+<br>
+위치 : 이태원역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=2GoOEJGIk3cD)]
+<br><br>
+
 에머이 [ 2.5 ⭐️ ]
 <br>
 위치 : 신사 가로수길
