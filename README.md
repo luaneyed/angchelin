@@ -122,12 +122,6 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[NAVER](https://store.naver.com/restaurants/detail?id=252365855)]
 <br><br>
 
-제이에스테이블 [ 1.3 ⭐️ ]
-<br>
-위치 : 선릉역
-[[망고플레이트](https://www.mangoplate.com/restaurants/_Jx3ZRSj89PD)]
-<br><br>
-
 사까나야바로바로 [ 1.2 ⭐️ ]
 <br>
 위치 : 선릉역
@@ -148,6 +142,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 <br>
 위치 : 선릉역
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=uPnAkbrxOqGP)]
+<br><br>
+
+제이에스테이블 [ 0.3 ⭐️ ]
+<br>
+위치 : 선릉역
+[[망고플레이트](https://www.mangoplate.com/restaurants/_Jx3ZRSj89PD)]
 <br><br>
 
 ### 배고픔에 속아 맛없음을 잊지 말자 ###
