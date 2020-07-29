@@ -86,12 +86,6 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=o3T0vmoG3GYB)]
 <br><br>
 
-카토멘 [ 1.5 ⭐️ ]
-<br>
-위치 : 선릉역
-[[다이닝코드](https://www.diningcode.com/profile.php?rid=uPnAkbrxOqGP)]
-<br><br>
-
 진미평양냉면 [ 1.3 ⭐️ ]
 <br>
 위치 : 강남구청역
@@ -112,6 +106,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 백채김치찌개 [ 1.0 ⭐️ ]
 <br>
 위치 : 어디든지
+<br><br>
+
+카토멘 [ 0.5 ⭐️ ]
+<br>
+위치 : 선릉역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=uPnAkbrxOqGP)]
 <br><br>
 
 ### 배고픔에 속아 맛없음을 잊지 말자 ###
