@@ -14,6 +14,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[NAVER](https://store.naver.com/restaurants/detail?id=1469979556)]
 <br><br>
 
+카메스시 [ 4.6 ⭐️ ]
+<br>
+위치 : 강남구청역
+[[NAVER](https://store.naver.com/restaurants/detail?id=1271618346)]
+<br><br>
+
 경천애인2237 [ 4.5 ⭐️ ]
 <br>
 위치 : 선릉역
