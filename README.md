@@ -2,6 +2,12 @@
 ### 익숙함에 속아 맛있음을 잊지 말자 ###
 <br>
 
+알라프리마 [ 4.8 ⭐️ ]
+<br>
+위치 : 논현동
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=WQzvT7tXU02J)]
+<br><br>
+
 경천애인2237 [ 4.5 ⭐️ ]
 <br>
 위치 : 선릉역
