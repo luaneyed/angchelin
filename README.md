@@ -26,6 +26,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=TIAjPermLmuO)]
 <br><br>
 
+스시산원 [ 4.0 ⭐️ ]
+<br>
+위치 : 망원역
+[[다이닝코드](https://store.naver.com/restaurants/detail?id=34006938)]
+<br><br>
+
 청어람 [ 4.0 ⭐️ ]
 <br>
 위치 : 망원역
