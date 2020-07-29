@@ -80,6 +80,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=TFmNhx1RJTs6)]
 <br><br>
 
+금수복국 [ 1.5 ⭐️ ]
+<br>
+위치 : 대치동
+[[NAVER](https://store.naver.com/restaurants/detail?id=252365855)]
+<br><br>
+
 진미평양냉면 [ 1.3 ⭐️ ]
 <br>
 위치 : 강남구청역
