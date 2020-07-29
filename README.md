@@ -8,6 +8,12 @@
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=WQzvT7tXU02J)]
 <br><br>
 
+Restaurant RIPE [ 4.7 ⭐️ ]
+<br>
+위치 : 삼성역
+[[NAVER](https://store.naver.com/restaurants/detail?id=1469979556)]
+<br><br>
+
 경천애인2237 [ 4.5 ⭐️ ]
 <br>
 위치 : 선릉역
