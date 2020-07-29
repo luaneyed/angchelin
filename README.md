@@ -80,12 +80,6 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=TFmNhx1RJTs6)]
 <br><br>
 
-사까나야바로바로 [ 2.0 ⭐️ ]
-<br>
-위치 : 선릉역
-[[다이닝코드](https://www.diningcode.com/profile.php?rid=o3T0vmoG3GYB)]
-<br><br>
-
 진미평양냉면 [ 1.3 ⭐️ ]
 <br>
 위치 : 강남구청역
@@ -96,6 +90,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 <br>
 위치 : 선릉역
 [[망고플레이트](https://www.mangoplate.com/restaurants/_Jx3ZRSj89PD)]
+<br><br>
+
+사까나야바로바로 [ 1.2 ⭐️ ]
+<br>
+위치 : 선릉역
+[[다이닝코드](https://www.diningcode.com/profile.php?rid=o3T0vmoG3GYB)]
 <br><br>
 
 전가네 손칼국수 [ 1.0 ⭐️ ]
