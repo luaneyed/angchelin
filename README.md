@@ -44,6 +44,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=hI8HuREl1vU7)]
 <br><br>
 
+돝고기506 [ 3.8 ⭐️ ]
+<br>
+위치 : 역삼역
+[[NAVER](https://store.naver.com/restaurants/detail?id=1087970189)]
+<br><br>
+
 중앙해장 [ 3.5 ⭐️ ]
 <br>
 위치 : 삼성역
