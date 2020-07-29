@@ -44,6 +44,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=PYk33Cv6jpwY)]
 <br><br>
 
+홍영재장수청국장 [ 3.4 ⭐️ ]
+<br>
+위치 : 삼성역
+[[NAVER](https://store.naver.com/restaurants/detail?id=19963744)]
+<br><br>
+
 연타발 선릉점 [ 3.3 ⭐️ ]
 <br>
 위치 : 선릉역
