@@ -68,6 +68,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=2GoOEJGIk3cD)]
 <br><br>
 
+금복당 [ 2.7 ⭐️ ]
+<br>
+위치 : 삼성동
+[[NAVER](https://store.naver.com/restaurants/detail?id=31992111)]
+<br><br>
+
 에머이 [ 2.5 ⭐️ ]
 <br>
 위치 : 신사 가로수길
