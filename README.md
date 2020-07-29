@@ -122,6 +122,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[NAVER](https://store.naver.com/restaurants/detail?id=252365855)]
 <br><br>
 
+속이 꽉찬 만두 99.9 [ 1.3 ⭐️ ]
+<br>
+위치 : 대치동
+[[NAVER](https://store.naver.com/restaurants/detail?id=38556377)]
+<br><br>
+
 사까나야바로바로 [ 1.2 ⭐️ ]
 <br>
 위치 : 선릉역
