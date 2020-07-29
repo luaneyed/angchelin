@@ -26,6 +26,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=TIAjPermLmuO)]
 <br><br>
 
+스시레이와 [ 4.1 ⭐️ ]
+<br>
+위치 : 논현동
+[[NAVER](https://store.naver.com/restaurants/detail?id=1158159435)]
+<br><br>
+
 스시산원 [ 4.0 ⭐️ ]
 <br>
 위치 : 망원역
