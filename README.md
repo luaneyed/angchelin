@@ -80,6 +80,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=UwzXQhpEhe9I)]
 <br><br>
 
+네기스키야키 [ 2.4 ⭐️ ]
+<br>
+위치 : 압구정역
+[[NAVER](https://store.naver.com/restaurants/detail?id=1705860023)]
+<br><br>
+
 정식당 [ 2.2 ⭐️ ]
 <br>
 위치 : 압구정로데오역
