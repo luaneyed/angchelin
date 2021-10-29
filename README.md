@@ -68,6 +68,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[NAVER](https://store.naver.com/restaurants/detail?id=35927543)]
 <br><br>
 
+이남장 삼성점 [ 3.3 ⭐️ ]
+<br>
+위치 : 봉은사역
+[[NAVER](http://naver.me/xhHnWRjW)]
+<br><br>
+
 선초밥 [ 3.2 ⭐️ ]
 <br>
 위치 : 선정릉역
