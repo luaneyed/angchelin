@@ -92,6 +92,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=2GoOEJGIk3cD)]
 <br><br>
 
+호호식탁 [ 2.8 ⭐️ ]
+<br>
+위치 : 사당역
+[[NAVER](http://naver.me/GDc5vKni)]
+<br><br>
+
 금복당 [ 2.7 ⭐️ ]
 <br>
 위치 : 삼성동
