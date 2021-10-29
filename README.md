@@ -40,7 +40,7 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 
 스시산원 [ 4.0 ⭐️ ]
 <br>
-위치 : 망원역
+위치 : 선릉역
 [[다이닝코드](https://store.naver.com/restaurants/detail?id=34006938)]
 <br><br>
 
