@@ -134,6 +134,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=TFmNhx1RJTs6)]
 <br><br>
 
+신도세기 삼성역점 [ 2.0 ⭐️ ]
+<br>
+위치 : 삼성역
+[[NAVER](http://naver.me/x6PU1hzo)]
+<br><br>
+
 해몽 [ 1.8 ⭐️ ]
 <br>
 위치 : 강남구청역
