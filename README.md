@@ -26,6 +26,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=TIAjPermLmuO)]
 <br><br>
 
+스시텐쇼 [ 4.2 ⭐️ ]
+<br>
+위치 : 사당역
+[[NAVER](http://naver.me/Gw5EarA8)]
+<br><br>
+
 스시레이와 [ 4.1 ⭐️ ]
 <br>
 위치 : 논현동
