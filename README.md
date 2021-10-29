@@ -56,6 +56,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[NAVER](https://store.naver.com/restaurants/detail?id=1087970189)]
 <br><br>
 
+옥동식 [ 3.6 ⭐️ ]
+<br>
+위치 : 합정역
+[[NAVER](http://naver.me/G7KDuvzZ)]
+<br><br>
+
 중앙해장 [ 3.5 ⭐️ ]
 <br>
 위치 : 삼성역
