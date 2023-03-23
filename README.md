@@ -92,6 +92,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=zm6uyQrVw83x)]
 <br><br>
 
+카이센동136 [ 3.1 ⭐️ ]
+<br>
+위치 : 샤로수길
+[[NAVER](https://naver.me/xfxVOlUJ)]
+<br><br>
+
 수라선 [ 3.0 ⭐️ ]
 <br>
 위치 : 역삼
