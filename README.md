@@ -26,6 +26,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=TIAjPermLmuO)]
 <br><br>
 
+오마 [ 4.3 ⭐️ ]
+<br>
+위치 : 연남동
+[[NAVER](https://naver.me/Gz51h3kK)]
+<br><br>
+
 스시텐쇼 [ 4.2 ⭐️ ]
 <br>
 위치 : 사당역
