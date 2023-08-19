@@ -56,6 +56,12 @@ Restaurant RIPE [ 4.7 ⭐️ ]
 [[다이닝코드](https://www.diningcode.com/profile.php?rid=hI8HuREl1vU7)]
 <br><br>
 
+심원 [ 3.9 ⭐️ ]
+<br>
+위치 : 연남동
+[[NAVER](https://naver.me/FhAdphjy)]
+<br><br>
+
 돝고기506 [ 3.8 ⭐️ ]
 <br>
 위치 : 역삼역
